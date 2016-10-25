@@ -1,6 +1,6 @@
 # COPIE_SITE
 
-### a pale and disastrous copy of ....http://aquatilis.tv/
+### a pale and disastrous copy of ... http://abc.go.com/
 
-##### just to play with '#'
+##### under construction ... forever
 
